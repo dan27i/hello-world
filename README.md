@@ -1,1 +1,1 @@
-/nneu neu neu/n
+zwei zwei zwei/n
